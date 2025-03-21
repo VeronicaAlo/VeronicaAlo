@@ -1,6 +1,6 @@
 ### **CURIOUS ABOUT DATA**
 Hi, i'm Veronica, a detail-driven data analyst,
-I help business uncover hidden trends, optimize operations, nd drive
+I help business uncover hidden trends, optimize operations, and drive
 growth through data-driven insights.
 With passion for storytelling and knack for simplifying complex data,
 I deliver actionable recommendations that drive real results.
